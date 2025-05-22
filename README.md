@@ -1,1 +1,1 @@
-Welcome! This is my profolio. 
+Welcome! This is my portfolio.
